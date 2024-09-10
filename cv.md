@@ -4,7 +4,7 @@ Business Analyst with 5+ years experience.
 
 Email: kita.anastasiya@gmail.com\
 Phone: +375297823631\
-Telegram: @stacykita\
+Telegram: @stacykita
 
 ## About
 Business Analyst with software engineering background. 
